@@ -2,7 +2,7 @@
   hey im xspy and im known for being a skid because of immune and some other retards in the roblox exploiting community
   if you dont like/appreciate me then dont talk to me.
 
-  all i can say is, dont trust rune and dont get electron v3.
+  all i can say is, dont trust everything that nano makes and dont get electron v3.
  </div>
 
 <h2 align="center">MY STATS</h2>
