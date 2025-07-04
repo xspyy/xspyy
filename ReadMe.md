@@ -1,6 +1,5 @@
 <div align="center">
-get xspy my loves
- yea im stupid i mean get xspy at https://www.xspy.lol/
+get xspy at https://www.xspy.lol/
  </div>
 
 <h2 align="center">MY STATS</h2>
