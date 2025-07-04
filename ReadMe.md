@@ -9,7 +9,7 @@ get xspy at https://www.xspy.lol/
 ![xspystats](https://github-readme-stats.vercel.app/api?username=xspyy&show_icons=true&theme=dark#gh-dark-mode-only)
 </div>
 
-<h2 align="center">programming languages that i dickride (excluding c# and html)</h2>
+<h2 align="center">haha i speak many languages!!</h2>
 <br/>
 <div align="center"> 
 
